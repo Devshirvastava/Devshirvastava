@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Devshirvastava
+- 👋 Hi, I’m @Devshrivastava
 - 👀 I’m searching for my coding passion...
 - 🌱 I’m currently persuing my bachelor's degree in computer science engineering
 - 💞️ I’m looking to collaborate on also anything I just need guidance 
